@@ -9,34 +9,45 @@ The old man was thin and gaunt with deep wrinkles in the back of his neck. The b
 老人消瘦而憔悴，脖子后面有深深折子。太阳通过热带海洋的强反射在他的脸颊上留下良性肿瘤的棕色斑点。
 
 The blotches ran well down the sides of his face and his hands had the deep-creased scars from handling heavy fish on the cords. But none of these scars were fresh. They were as old as erosions in a fishless desert.
+
 斑点顺着他脸的两侧长下去。用绳索捕一些很重的鱼使他的手上有些深折痕的疤。疤痕没有新的，像没有鱼的沙漠侵蚀的那么久。
 
 Everything about him was old except his eyes and they were the same color as the sea and were cheerful and undefeated.
+
 他的眼睛与苍老的身体不同，与大海一样，湛蓝、乐观、顽强。
 
 "Santiago," the boy said to him as they climbed the bank from where the skiff was hauled up. "I could go with you again. We've made some money."
+
 「圣地亚哥，」男孩说着与老人爬上了泊船的堤岸。「我又可以和你出海了，我们赚了些钱。」
 
 The old man had taught the boy to fish and the boy loved him.
+
 老人教给男孩打渔，男孩爱他。
 
 "No," the old man said. "You're with a lucky boat. Stay with them."
+
 「别了。你在一艘幸运的船上，和他们待在一起吧。」老人答道。
 
 "But remember how you went eighty-seven days without fish and then we caught big ones every day for three weeks."
+
 「别忘了之前你87天没捕到鱼，接下来三周我们每天都能捕到大鱼。
 
 "I remember," the old man said. "I know you did not leave me because you doubted."
+
 「我记得。」老人说到，「我知道你不是因为不相信我而走的。」
 
 "It was papa made me leave. I am a boy and I must obey him."
+
 「是我爸爸让我走的。我只是个小孩我得听他的。」
 
 "I know," the old man said. "It is quite normal." "He hasn't much faith." "No," the old man said. "But we have. Haven't we?" "Yes," the boy said. "Can I offer you a beer on the Terrace and then we'll take the stuff home."
+
 「我明白。」老人说，「这很正常。」「他没有信仰！」「没错，但是我们有，对吧？」「是的！」男孩回答，「我要请你去泰若思酒吧喝杯啤酒，然后我们这些东西搬回家。」
 
 "Why not?" the old man said, "Between fishermen."
+
 「何乐而不为？」老人说。「渔夫之间没什么好客气的。」
 
 They sat on the Terrace and many of the fishermen made fun of the old man and he was not angry. Others, of the older fishermen, looked at him and were sad. But they did not show it and they spoke politely about the current and the depths they had drifted their lines at and the steady good weather and of what they had seen.
+
 他们坐在酒吧露台上，许多渔民取笑老人然而他也没有生气。另外一些年长些的渔民看着老人，有些悲伤，却没有说出来。他们礼貌地谈论着近况和经历，曾经把鱼线漂流到多深的地方去，见过的连续好天气。
