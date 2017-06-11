@@ -1,11 +1,14 @@
 # Part 1
 He was an old man who fished alone in a skiff in the Gulf Stream and he had gone eighty-four days now without taking a fish. In the first forty days a boy had been with him. But after forty days without a fish the boy's parents had told him that the old man was now definitely and finally salao, which is the worst form of unlucky, and the boy had gone at their orders in another boat which caught three good fish the first week.
+
 他是一个独自驾小船在海湾流捕鱼的老人，出发了84天一无所获。在最初的40天里，有一个男孩曾与他为伴。但是经过40天的一无所获，男孩的父母告诉他这个老人肯定是个倒霉鬼，最后也不会有好收获。男孩听从父母的命令，去了另一艘小船。第一个星期就捕到三尾好鱼。
 
 It made the boy sad to see the old man come in each day with his skiff empty and he always went down to help him carry either the coiled lines or the gaff and harpoon and the sail that was furled around the mast. The sail was patched with flour sacks and, furled, it looked like the flag of permanent defeat.
+
 看到老人每天两手空空的回来，男孩感到很悲伤。每每下去帮老人搬帆绳或者鱼叉和捕鲸叉还有卷在桅杆上的帆。帆用面粉袋子打着补丁，卷着，看起来像一个永远失败的白旗。
 
 The old man was thin and gaunt with deep wrinkles in the back of his neck. The brown blotches of the benevolent skin cancer the sun brings from its reflection on the tropic sea were on his cheeks.
+
 老人消瘦而憔悴，脖子后面有深深折子。太阳通过热带海洋的强反射在他的脸颊上留下良性肿瘤的棕色斑点。
 
 The blotches ran well down the sides of his face and his hands had the deep-creased scars from handling heavy fish on the cords. But none of these scars were fresh. They were as old as erosions in a fishless desert.
