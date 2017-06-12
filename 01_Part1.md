@@ -51,7 +51,3 @@
 >"Why not?" the old man said, "Between fishermen."
 
 「何乐而不为？」老人说。「渔夫之间没什么好客气的。」
-
->They sat on the Terrace and many of the fishermen made fun of the old man and he was not angry. Others, of the older fishermen, looked at him and were sad. But they did not show it and they spoke politely about the current and the depths they had drifted their lines at and the steady good weather and of what they had seen.
-
-他们坐在酒吧露台上，许多渔民取笑老人然而他也没有生气。另外一些年长些的渔民看着老人，有些悲伤，却没有说出来。他们礼貌地谈论着近况和经历，曾经把鱼线漂流到多深的地方去，见过的连续好天气。
