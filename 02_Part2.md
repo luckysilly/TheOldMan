@@ -37,7 +37,7 @@
 
 >"One," the old man said. His hope and his confidence had never gone. But now they were freshening as when the breeze rises. "Two," the boy said. "Two," the old man agreed. "You didn't steal them?" "I would," the boy said. "But I bought these."
 
-「一个就行了。」老人说到，他从来没有失去过希望和信心。而现在清新重现，如同微风兴起。「带2条吧。」男孩说道。「2条，可以。」老人同意。“「你不是偷来的吧？」「我倒想，」男孩说到，「是我买的。」
+「1条就行了。」老人说到，他从来没有失去过希望和信心。而现在清新重现，如同微风兴起。「带2条吧。」男孩说道。「2条，可以。」老人同意。“「你不是偷来的吧？」「我倒想，」男孩说到，「是我买的。」
 
 
 >"Thank you," the old man said. He was too simple to wonder when he had attained humility. But he knew he had attained it and he knew it was not disgraceful and it carried no loss of true pride. "Tomorrow is going to be a good day with this current," he said. "Where are you going?" the boy asked.
