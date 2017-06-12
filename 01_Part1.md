@@ -1,4 +1,5 @@
-# Part 1
+# The old man and the sea
+## Part 1
 >He was an old man who fished alone in a skiff in the Gulf Stream and he had gone eighty-four days now without taking a fish. In the first forty days a boy had been with him. But after forty days without a fish the boy's parents had told him that the old man was now definitely and finally salao, which is the worst form of unlucky, and the boy had gone at their orders in another boat which caught three good fish the first week.
 
 他是一个独自驾小船在海湾流捕鱼的老人，出发了84天一无所获。在最初的40天里，有一个男孩曾与他为伴。但是经过40天的一无所获，男孩的父母告诉他这个老人肯定是个倒霉鬼，最后也不会有好收获。男孩听从父母的命令，去了另一艘小船。第一个星期就捕到三尾好鱼。
