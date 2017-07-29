@@ -19,12 +19,6 @@
 他平稳地划着，并不吃力，因为速度保持的很好没有超过他均速，除了偶尔有一些湾流引起的漩涡，海面很平静。他让湾流助他三分之一的力气，天开始亮了，他看出此时已经划得比预计的远了。我在这「深井」上费了一个星期的劲儿还是一无所获，他想到。今天我要去柴鱼和金枪鱼的聚集地，哪里或许有大鱼。在天彻底亮之前，他把鱼饵投入水中，顺流而去。
 
 
-One bait was down forty fathoms. The second was at seventy-five and the third and fourth were down in the blue water at one hundred and one hundred and twenty-five fathoms. Each bait hung head down with the shank of the hook inside the bait fish, tied and sewed solid and all the projecting part of the hook, the curve and the point, was covered with fresh sardines. Each sardine was hooked through both eyes so that they made a half-gar-land on the projecting steel. There was no part of the hook that a great fish could fell which was not sweet smelling and good tasting.
+>One bait was down forty fathoms. The second was at seventy-five and the third and fourth were down in the blue water at one hundred and one hundred and twenty-five fathoms. Each bait hung head down with the shank of the hook inside the bait fish, tied and sewed solid and all the projecting part of the hook, the curve and the point, was covered with fresh sardines. Each sardine was hooked through both eyes so that they made a half-gar-land on the projecting steel. There was no part of the hook that a great fish could fell which was not sweet smelling and good tasting.
 
-
-
-
-
-> 余：第一个饵入水四十英寻。第二个入水七十五英寻，第三第四两个却深沉蓝色的海水之中，各在一百及一百廿五英寻处。每个引饵都倒垂水中，钩柄藏在饵鱼腹内，系好缝牢，而鱼钩一切突出的部分，亦即钩弯和钩尖，都套上了新鲜的沙丁鱼。每条沙丁鱼都给钓钩贯穿两眼，在钢弯上形成了半圆形的花圈。钓钩上，大鱼所能接触到的部分莫不香甜可口。
-
-> 张：一个饵放到四十噚下。第二个是七十五噚，第三第四个放在那蓝色的水里一百噚下，和一百二十五噚下。每一个饵都是头朝下，鈎子上直的一部分戳在作饵的鱼里，缚了起来，缝得牢牢的；鈎子突出的一部分──弯曲的部分，和尖子──完全盖满了新鲜的沙汀鱼。每一条沙汀鱼从两只眼睛里穿进去，它们穿在那铁钩上像半只花圈一样，在一条大鱼看来，这鈎子没有一部分不是香甜美味的。
+第一个鱼饵投入四十英寻深。第二个有七十五英寻，第三个和第四个都沉入深深的蓝色大海中，一个到一百英寻，另一个到一百二十五英寻。每个鱼饵的都向下垂着头，在饵鱼的中藏了鱼钩的柄，系住缝的结实。鱼钩的所有突起，钩弯和钩尖，都用新鲜沙丁鱼包住。每条沙丁鱼都从两眼勾住，就像钩子上的半圆花圈。钩子上没有一部分在大鱼看来不是香甜的。
