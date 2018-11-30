@@ -14,7 +14,7 @@
 
 >The blotches ran well down the sides of his face and his hands had the deep-creased scars from handling heavy fish on the cords. But none of these scars were fresh. They were as old as erosions in a fishless desert.
 
-斑疹顺着他脸的两侧长下去。他的手上有些深深的勒痕，是用绳索捕拉扯大鱼留下的痕迹。勒痕没有新的，像没有鱼的沙漠风蚀的那样旧。
+斑疹顺着他脸的两侧长下去。他的手上有些深深的勒痕，是用绳索拉扯大鱼留下的痕迹。勒痕没有新的，像没有鱼的沙漠风蚀的那样旧。
 
 >Everything about him was old except his eyes and they were the same color as the sea and were cheerful and undefeated.
 
