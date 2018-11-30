@@ -2,7 +2,7 @@
 ## Part 2
 >They sat on the Terrace and many of the fishermen made fun of the old man and he was not angry. Others, of the older fishermen, looked at him and were sad. But they did not show it and they spoke politely about the current and the depths they had drifted their lines at and the steady good weather and of what they had seen.
 
-他们坐在泰若思露平台上，许多渔民拿老人找乐子，但他并没有生气。另外一些年长些的渔夫看着老人，为他难过，却没有说出来。他们礼貌地谈论着洋流，投索的深度，稳定的好天气，和其他见闻。
+他们坐在泰若思平台上，许多渔民拿老人找乐子，但他并没有生气。另外一些年长些的渔夫看着老人，为他难过，却没有说出来。他们礼貌地谈论着洋流，投索的深度，稳定的好天气，和其他见闻。
 
 >The successful fishermen of that day were already in and had butchered their marlin out and carried them laid full length across two planks, with two men staggering at the end of each plank, to the fish house where they waited for the ice truck to carry them to the market in Havana. Those who had caught sharks had taken them to the shark factory on the other side of the cove where they were hoisted on a block and tackle, their livers removed, their fins cut off and their hides skinned out and their flesh cut into strips for salting.
 
