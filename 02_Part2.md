@@ -6,12 +6,12 @@
 
 >The successful fishermen of that day were already in and had butchered their marlin out and carried them laid full length across two planks, with two men staggering at the end of each plank, to the fish house where they waited for the ice truck to carry them to the market in Havana. Those who had caught sharks had taken them to the shark factory on the other side of the cove where they were hoisted on a block and tackle, their livers removed, their fins cut off and their hides skinned out and their flesh cut into strips for salting.
 
-当天收获的渔夫已经进港，他们把杀好的马林鱼搬出来摊摆满了两块木板。两个男人一头一个，蹒跚着把木板搬到渔库，等着冷运车来把鱼运到哈瓦那的市场。捕到鲨鱼的渔夫则把它们送到海湾对面的加工厂，用滑轮组把鲨鱼吊起来处理。去掉肝脏，剪下鱼翅，扒下鱼皮，把鱼肉切成一条条的准备撒盐腌制。
+当天收获的渔夫已经进港，他们把杀好的马林鱼搬出来摊摆满了两块木板。两个男人一头一个，蹒跚着把木板搬到渔库，等着冷运车来把鱼运到哈瓦那的市场。捕到鲨鱼的渔夫则把它们送到海湾对面的加工厂，用滑轮组吊起来处理。去掉肝脏，剪下鱼翅，扒下鱼皮，把鱼肉切成一条条的准备撒盐腌制。
 
 
 >When the wind was in the east a smell came across the harbor from the shark factory; but today there was only the faint edge of the odor because the wind had backed into the north and then dropped off and it was pleasant and sunny on the Terrace.
 
-起东风的时候，鲨鱼加工厂的腥味会飘港口里。但是今天只有一点淡淡的味道，因为风转向北吹，逐渐停息，平台上明媚宜人。
+起东风的时候，港口里飘满了鲨鱼工厂吹来的腥味。但是今天只有一点淡淡的味道，因为风转向北吹，逐渐停息，平台上明媚宜人。
 
 
 

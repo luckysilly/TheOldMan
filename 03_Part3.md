@@ -2,15 +2,19 @@
 ## Part 3
 >"Far out to come in when the wind shifts. I want to be out before it is light."
 
-「我们划得远些风向换了再回来吧。我想在天亮前就出发。」
+「去远点，风向换了再回来吧。我想在天亮前就出发。」
 
 >"I'll try to get him to work far out," the boy said. "Then if you hook something truly big we can come to your aid."
 
-「我去试试劝他出个远航，」男孩说到。「那么如果你真的遇到大鱼，我们可以帮你。」
+「我去试试引引我的船出个远航吧，」男孩说到。「这样如果你真的钓到大鱼，我们可以来帮你。」
 
 >"He does not like to work too far out." "No," the boy said. "But I will see something that he cannot see such as a bird working and get him to come out after dolphin." "Are his eyes that bad?" "He is almost blind." "It is strange," the old man said. "He never went turtle-ing. That is what kills the eyes."
 
-「他不太喜欢远航打渔啊。」「是啊，」男孩说。「我可以看到一些他看不到的东西，比如忙碌的小鸟，我还可以引他出海追海豚。」「他眼睛这么坏了？」「他几乎瞎了。」「奇怪啊，」老人说，「他从来不去捕龟，这是最伤眼的。」
+「他不太喜欢远航打渔啊。」
+「是啊，」男孩说。「但是我可以看到一些他看不到的东西，比如忙碌的小鸟，我还可以引他出海追海豚。」
+「他眼睛这么不好用了？」
+「都快瞎了。」
+「奇怪啊，」老人说，「他从来不去捕龟，这才是最伤眼的。」
 
 >"But you went turtle-ing for years off the Mosquito Coast and your eyes are good." "I am a strange old man." "But are you strong enough now for a truly big fish?" "I think so. And there are many tricks."
 
